@@ -11,3 +11,6 @@ but it fits cuz mazean ui is now blatantly vibed too
 typed 'bindings' + other stuff
 
 dm sunsuke_12 on discord if u want me to dump latest OR you can js do it urself
+
+### discord:
+https://discord.gg/6w84vNEFEQ
